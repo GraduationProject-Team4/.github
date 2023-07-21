@@ -1,1 +1,1 @@
-![Thumbnail](https://github.com/BookJamm/FE/assets/80394340/c3e05f4d-89aa-48e2-ba2a-f4402647d305)
+![Thumbnail](https://github.com/BookJamm/FE/assets/80394340/1a1848b5-060e-4cf5-8afd-fbcd2ec0da5f)
